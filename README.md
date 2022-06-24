@@ -1,1 +1,1 @@
-# azdaaris.github.io
+# pomoc
